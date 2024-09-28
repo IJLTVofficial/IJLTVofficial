@@ -9,7 +9,10 @@
 You can also subscribe on my Youtube channel to support me!
 -IJLTV
 
-THANK YOU!
+Thank you!
+Have a nice day!
+
+Don't give up.
 
 <!---
 IJLTVofficial/IJLTVofficial is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
